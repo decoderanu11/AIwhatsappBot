@@ -10,7 +10,7 @@ It's fully secure with whatsapp end-to-end encryption. 🔐
 Try it out today and see how it can help you! 🤗
 
 Here is the direct link...
-https://rb.gy/bghzm
+
 
 
 #USAGE
